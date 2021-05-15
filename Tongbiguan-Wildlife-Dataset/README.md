@@ -1,1 +1,0 @@
-# Tongbiguan-Wildlife-Dataset
